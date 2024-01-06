@@ -6,7 +6,7 @@
 
 _**What is the name of the company?**_
 
-* Moonpay
+* Moonpay Inc.
   
 _**When was the company incorporated?**_
 
